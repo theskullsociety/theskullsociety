@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @theskullsociety
 - 👀 I’m interested in Hacking , DEVELOPING
-- 🌱 I’m currently learning :- BOTNET ATTACK
+- 🌱 I’m currently learning : SECRET
 - 💞️ I’m looking to collaborate on : DEVELOPING
 - 📫 How to reach me ... : TELEGRAM - @THE_SKULL_OWNER
 
